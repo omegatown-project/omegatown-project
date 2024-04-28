@@ -13,6 +13,6 @@
 <div align="center">
   
 𝗔𝗟𝗟 𝗧𝗛𝗘 𝗜𝗡𝗙𝗢 𝗡𝗘𝗘𝗗𝗘𝗗 [𝗛𝗘𝗥𝗘, 𝗜𝗡 𝗢𝗨𝗥 𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://ponytownomegaproject.straw.page) & 𝗢𝗨𝗥 [𝗖𝗕𝗢𝗫](https://my.cbox.ws/Omegatown-Project)
-<p>! 𝘔𝘢𝘥𝘦 𝘣𝘺 𝘺𝘰𝘶𝘳𝘴 𝘵𝘳𝘶𝘭𝘺 𝘢𝘭𝘧𝘢𝘤𝘳𝘦𝘸 !</p>
+<p>! 𝘔𝘢𝘥𝘦 𝘣𝘺 𝘺𝘰𝘶𝘳𝘴 𝘵𝘳𝘶𝘭𝘺, 𝘢𝘭𝘱𝘩𝘢 𝘤𝘳𝘦𝘸 !</p>
 </div>
 
