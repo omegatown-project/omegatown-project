@@ -15,12 +15,3 @@
 
 <img src="https://media.discordapp.net/attachments/809954503046332459/1097999985687134300/bounce.gif?ex=6651b1ec&is=6650606c&hm=c567219afa94dabe56ae0621aa66a55d01ec4dc06758dcafa0e6e50dea294e3f&">
 </div>
-
-
-
-
-<div align="center"> 
-  Officialy closed! check our [rentry](https://rentry.co/omegatown) for results! </div>
-  
-
-
